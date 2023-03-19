@@ -2,6 +2,8 @@
 
 This is a 6 page document explaining what Witchcraft is.
 
+There is a [Audio](https://github.com/Light-Wizzard/Witchcraft/blob/main/Witchcraft.mp3) version of this document.
+
 Witchcraft
 
 By Jeffrey Scott Flesher
