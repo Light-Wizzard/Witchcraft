@@ -32,9 +32,11 @@ The Torah said Satan is a person that lies, thus, anyone that lies, is Satan, an
 
 Science defines terms like Light and Darkness, and it does not define Light as Good, and Darkness as Evil, that is Superstition, as is the belief in Jesus Christ, or Albert Einstein, and why I feel like I am the one that is insane or mad, because everyone is Satanic, and they will argue this point, so I will make this Scientific. I will refer to the day Newton asked Halley to write down a formula that Newton found in the artwork around the border of a page in the Torah written in the 3rd Century, it was 1 + (-1) = 0, but I prefer to write it as (+1) + (-1) = 0. Newton said this was a formula and not a truth table as Tycho told Kepler, and Kepler believed it and it stayed that way till Tesla made sense of it, by filling in the blanks, I will write this in the simplest form I can… As a Waveform.
 
+```
 (+1) *    *     *
  0    *  *  *  *
 (-1)    *     *
+```
 
 I call this Trinary Math, the logic goes like this, you have the Father that is in Heaven, as a positive one, which is Matter, and you have the Son who is in Hell, thus, the negative one, and is Antimatter, and you have the Holy Ghost Spirit of Mother Nature, also known as Earth, and in this case, Earth is better known as Ground, and now the waveform of Electricity can be recognized, but this can also be our Brainwaves, proving Trinity was talking about God and our Soul, but I call this Trinary because it is based on the logic of 3, which is the Science of God, based on facts, and not theory, and without Religion.
 
