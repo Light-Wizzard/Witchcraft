@@ -1,6 +1,6 @@
 # Witchcraft
 
-This is a 6 page document explaining what Witchcraft is.
+This is a 6 page document explaining what Witchcraft is, and another for what [Dementophobia](https://github.com/Light-Wizzard/Witchcraft/tree/main/Dementophobia) is.
 
 There is a [Audio](https://github.com/Light-Wizzard/Witchcraft/blob/main/Witchcraft.mp3) and [PDF](https://github.com/Light-Wizzard/Witchcraft/blob/main/Witchcraft.pdf) version of this document.
 
